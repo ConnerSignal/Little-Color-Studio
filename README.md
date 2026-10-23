@@ -4,7 +4,7 @@ A quick little product born from a 10-minute realization at Starbucks. Sometimes
 
 ## 📖 The Story
 
-One morning at my local Starbucks, I was enjoying my **Black Cat Drink (Grande)** when I noticed something special written on the paper cup: *"You Matter"* written on a piece of Halloween coloring paper.
+One morning at my local Starbucks, I was enjoying my **Black Cat Drink (Grande)** when I noticed something special written on the cup: *"You Matter"* written on my drink, and then I saw the Halloween coloring paper.
 
 But there was one problem—no crayons were visible anywhere. 
 
