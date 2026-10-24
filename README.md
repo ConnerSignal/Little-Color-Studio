@@ -37,5 +37,5 @@ Sometimes the best products are the simplest ones—born from a real problem and
 Made with ☕ and #ProductManager magic. Happy coloring! 🖍️
 
 *If this made you smile, give it a star! ⭐*
-Also, if you want MORE things to color, to here (she always says she loves pushing color around)!
+Also, if you want MORE things to color, go here (she always says she loves pushing color around)!
 https://shelliconnerstudio.com/coloring-pages.html
